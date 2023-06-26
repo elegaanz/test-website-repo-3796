@@ -1,4 +1,4 @@
 ---
 title: Contact
 ---
-envoyez moi des cartes postales svppp pppppp 
+envoyez moi des cartes postales !!! 
