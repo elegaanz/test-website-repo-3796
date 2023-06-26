@@ -1,4 +1,4 @@
 ---
 title: Contact
 ---
-envoyez moi des cartes postales !!! 
+Je refais ma page de contact (en cours…). 
